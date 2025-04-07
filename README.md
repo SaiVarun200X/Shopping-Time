@@ -1,3 +1,3 @@
 # Shopping-Time
 
-![image](https://github.com/user-attachments/assets/13864855-fe38-45c3-866e-f10813d911e5)
+![image](https://github.com/user-attachments/assets/fae88e11-0642-4ffa-a587-d93fe7f79b09)
